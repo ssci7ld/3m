@@ -1,3 +1,3 @@
 # education purpose !!
-<hr>
+
 ## Thank.
